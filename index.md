@@ -1,4 +1,4 @@
-## Juan Flores
+# Juan Flores
 
 Welcome to my portfolio, where i can show you what i accomplished so take your shoes off and enjoy!
 
